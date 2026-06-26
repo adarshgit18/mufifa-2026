@@ -1,7 +1,7 @@
 Adarsh Unni (Electronics & Communication Engineering Student | AI, Robotics & Embedded Systems Enthusiast)
 
 Squad Domain: Coder | Maker
-FIFA Nation: Germany 🇩🇪
+FIFA Nation: Germany 
 
 ---
 
@@ -49,13 +49,13 @@ My most unforgettable FIFA World Cup memory is the 2022 FIFA World Cup Final bet
 
 2026 Predictions
 
-🏆 Winner: Germany
+Winner: Germany
 
-🌟 Dark Horse: Norway
+Dark Horse: Norway
 
-⭐ Player of the Tournament: Florian Wirtz
+Player of the Tournament: Florian Wirtz
 
-🔥 Most Anticipated Match: Germany vs Spain
+Most Anticipated Match: Germany vs France
 
 ---
 
